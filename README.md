@@ -1,1 +1,1 @@
-# https://gustav014.github.io/trabalho.com/
+# https://gustav014.github.io/trabalho/
